@@ -1,4 +1,2 @@
-# just download file
-DO IT NOW
-srsly, do it.
-bro, if you dont-
+# DOWNLODE ROBlOks STUDEEOH
+btw this is only 4 windows and macnitosh and maybe linux but no chromebook
